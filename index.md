@@ -24,9 +24,9 @@ Syntax highlighted code block
 **Bold** and _Italic_ and `Code` text
 
 [Link](url) and ![Image](src)
-```
 
-For more details see [VERANDE BRESCIA](http://pergole-brescia.net/verande/)
+[VERANDE BRESCIA](http://pergole-brescia.net/verande/)
+[SERRAMENTI PVC BRESCIA](https://serramenti-brescia.net/serramenti-in-pvc//)
 
 
 
