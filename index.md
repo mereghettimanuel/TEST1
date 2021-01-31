@@ -7,7 +7,7 @@
 - [VERANDE BRESCIA](http://pergole-brescia.net/verande/) 
 
 
-###ALCOOL 
+##ALCOOL 
 
 Guida all'uso dell'alcool | L’alcool denaturato viene impiegato principalmente per pulire e disinfettare ma non tutti sono a conoscenza delle sue potenzialità e dei diversi usi che se ne possono fare in casa. L’alcool denaturato è uno dei disinfettanti più diffusi su scala nazionale ma in pochi sanno che può essere adoperato per un gran numero di scopi differenti. Vediamo assieme quali sono.
 
