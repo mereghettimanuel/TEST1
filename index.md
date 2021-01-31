@@ -7,6 +7,60 @@
 - [VERANDE BRESCIA](http://pergole-brescia.net/verande/) 
 
 
+ALCOOL 
+
+Guida all'uso dell'alcool | L’alcool denaturato viene impiegato principalmente per pulire e disinfettare ma non tutti sono a conoscenza delle sue potenzialità e dei diversi usi che se ne possono fare in casa. L’alcool denaturato è uno dei disinfettanti più diffusi su scala nazionale ma in pochi sanno che può essere adoperato per un gran numero di scopi differenti. Vediamo assieme quali sono.
+
+Guida all'uso dell'alcool
+Guida all'uso dell'alcool
+
+Eliminare le zecche | Durante la primavera e la stagione estiva può capitare che un animale domestico o anche le persone vengano punte dalle zecche. Per rimuovere l’insetto in maniera rapida ed efficace basta tamponare la zona interessata con un batuffolo di cotone imbevuto con abbondante alcool denaturato. Lasciate agire per qualche minuto poi provvedete ad estrarre l’insetto con un paio di pinzette.
+
+Eliminare i moscerini della frutta | Se vi si è sciupata della frutta e avete in cucina un elevato numero di moscerini che volano, spruzzate sopra gli insetti l’alcool denaturato. Effettuate questa operazione aprendo porte e finestre per consentire un buon ricircolo d’aria.
+
+Punture di zanzara | Massaggiando la parte interessata da una puntura di zanzara con dell’alcool si riesce a eliminare quasi completamento il prurito e anche il gonfiore.
+
+Cimici da letto | Per rimuovere efficacemente le cimici da letto a volte non rimane altra soluzione che ricorrere alla disinfestazione professionale. Se però avete a portata di mano dell’alcool denaturato potrete ucciderle in poco tempo e a costo zero. Procuratevi un contenitore dotato di erogatore spray e riempitelo con alcool denaturato. Spruzzate sul materasso infestato il prodotto che immediatamente ucciderà gli insetti. Per eliminare anche le uova ripetete l’operazione più volte al giorno. Ricordatevi di ventilare bene la zona prima di andare a letto e verificate che il materasso sia ben asciutto.
+
+Guida all'uso dell'alcool
+Smacchiatore | Sapevate che l’alcool denaturato può essere adoperato come un comune smacchiatore? Miscelate due parti di acqua con una di alcool e versate quanto ottenuto in una bottiglia dotata di erogatore spray. Spruzzate sulla macchia di caffè, tè, olio, pomodoro o di qualsiasi altra sostanza questa soluzione e lasciate agire per almeno un quarto d’ora prima di lavare il capo normalmente insieme al resto del bucato. Anche le macchie più ostinate come quelle di inchiostro non lasceranno traccia.
+
+Scarpe sportive | Se le calzature che adoperate per fare sport emanano un cattivo odore, tamponate il loro interno con abbondante alcool denaturato. Lasciatele poi asciugare all’aria aperta prima di indossarle perfettamente deodorate.
+
+Odore di aglio dalle mani
+
+Per togliere il forte odore di aglio dalle mani basta sfregarle con un po’ di alcool denaturato prima di lavarle normalmente sotto il getto del lavandino.
+
+Alcool e pavimenti
+
+Oltre a mobili e sanitari, l’alcool si rivela un prezioso alleato anche per la pulizia dei pavimenti. Ad esempio, l’uso alcool per pulire il marmo consiste nel preparare una soluzione di alcool denaturato (un bicchiere) e due litri di acqua. Potete inoltre lavare pavimenti con alcool e aceto per avere una pulizia ancora più brillante. L’alcool per pulire parquet o cotto va invece evitato. Ecco una guida pratica per pulire il parquet.
+
+Ora potete dire di sapere come pulire casa con alcool. Prima di andare vi suggeriamo la lettura delle 15 cose da non dimenticare di pulire.
+
+==> CONSIGLI D’ACQUISTO
+
+==>Italia :
+
+SMARTYBY.COM PER :
+
+alcool
+alcool denaturato
+alcool denaturato 90 gradi
+alcool denaturato profumato
+alcol denaturato online
+==> 1 secondo del tuo tempo….
+
+Spero l’articolo su come usare l'alcool denaturato  sia stato esaudiente e soprattutto veloce e leggero.
+
+Se ti è piaciuto ti chiedo una gentilezza, per te un semplice click ma per me ed il mio staff una grande soddisfazione per gli sforzi a creare tutti i contenuti di comefaredase.it :
+
+un commento qui sotto oppure condividi !!!
+e poi torna alla home page per leggere altri articoli !!
+Guida all'uso dell'alcool
+Guida all'uso dell'alcool
+
+GIARDINO
+
 ==> GAZEBO
 ==> PERGOLE
 ==> TAVOLI/SEDIE/ DA GIARDINO
